@@ -22,6 +22,7 @@ Feel free to explore the materials provided here and utilize them in your prepar
 About Me
 
 I'm Syed Sharjeel Ahmed, passionate about data analytics and continuously seeking opportunities for growth and learning. Connect with me on LinkedIn to engage in discussions or share insights.
+https://www.linkedin.com/in/sharjeel-ahmed-b84825210/
 
 Wishing you all a productive and successful day!
 
